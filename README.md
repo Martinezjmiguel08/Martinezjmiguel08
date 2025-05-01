@@ -6,5 +6,5 @@
 
 * :seedling: As many of you I'm still learning this skills
 
-* :speech_balloon: Feel free to ask me if you have any question
+* :speech_balloon: Feel free to reach me if you have any question
 
